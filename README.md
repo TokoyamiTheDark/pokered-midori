@@ -1,2 +1,0 @@
-# pokered-midori
-# pokered-midori
